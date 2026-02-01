@@ -1,3 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=iburninq&color=green)
 
-you can call me spoke or by pony char ^_^ i like minecraft and roblox args + admins/hackers
+you can call me spoke i like minecraft and roblox args + admins/hackers
